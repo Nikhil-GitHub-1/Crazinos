@@ -1,0 +1,2 @@
+# Crazinos
+Future stars
